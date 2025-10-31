@@ -10,7 +10,7 @@
 >Hiphop(Rap)                     **MF DOOM, Nujabes
 >Folk                            **Asin,Sampaguita
 >Adult Contemporary              **Carpenters, Bee Gees
->Metal (Grindcore, Death Metal)  **Cannibal Corpse, Napalm Death, Death, Tubero  -This type                                    of Genre is Very Relaxed
+>Metal (Grindcore, Death Metal)  **Cannibal Corpse, Napalm Death, Death, Tubero  -This type of Genre is Very Relaxed
 >Ska                             **Radioactive Sago Project
 
   
